@@ -1,1 +1,3 @@
-# EXTENÇÃO MANEIRA MTO BOA VAI MUDAR SUA VIDA 👍
+# Whatsapp web dark mode
+
+simplesmente deixa o zapzap web no dark mode. ('-')
